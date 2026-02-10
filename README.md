@@ -1,1 +1,0 @@
-# APNR_TECH
